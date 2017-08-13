@@ -1,2 +1,0 @@
-# lukmanlab
-All My Note
